@@ -1,2 +1,2 @@
 # Modul7
-Аз съм Джемиле Тиберска
+My name is Dzhemile
